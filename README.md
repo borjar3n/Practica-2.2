@@ -8,3 +8,4 @@ Commit a la vez(Borja)
 
 ![image](https://github.com/user-attachments/assets/ce323176-6a8b-4d5d-a03e-ce557f2f1972)
 
+![image](https://github.com/user-attachments/assets/88b21ffb-fa56-4f98-a510-f58cf6dc685a)
